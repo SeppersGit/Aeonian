@@ -65,9 +65,3 @@ If axon was never leaked i would have never met all these amazing people and i w
 
 
 # If Your Code Is In Here And Was Not Credited Contact Me And Ill Add It!
-
-# Need Help?
-
-Contact 
-ringarang#9486 
-on discord!
